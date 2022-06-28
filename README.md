@@ -7,5 +7,7 @@ Ingat gunakan sewajarnya
 Di karenakan akun tumbal cepat
 Kenon
 
+Langsung git clone 
+
 wa-saya : 085874085305
 Thanks you 
